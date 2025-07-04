@@ -1,4 +1,4 @@
-# Exposing-the-Unseen-Layers-of-the-Cosmo
+# Exposing-the-Unseen-Layers-of-the-Cosmos
 
 ![alt text](image-1.png)
 
